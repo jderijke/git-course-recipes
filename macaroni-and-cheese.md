@@ -3,7 +3,7 @@
 ## Ingredients
 
 - 2 slices bacon
-- 8 ounces penne pasta
+- 250g penne pasta
 - 1 onion, chopped
 - 1 clove garlic, minced
 - 3 cups shredded Cheddar cheese
@@ -13,7 +13,7 @@
 
 ## Preparation
 
-Preheat oven to 350 degrees F.
+Preheat oven to 180 degrees C.
 
 Place bacon in a large, deep skillet. Cook over medium high heat until evenly brown. Drain, crumble and set aside.
 
