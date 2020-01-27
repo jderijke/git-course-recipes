@@ -3,7 +3,7 @@
 ## Ingredients
 
 - 2 slices bacon
-- 8 ounces penne pasta
+- 250g penne pasta
 - 1 onion, chopped
 - 1 clove garlic, minced
 - 3 cups shredded Cheddar cheese
