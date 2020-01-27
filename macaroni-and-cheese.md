@@ -13,7 +13,7 @@
 
 ## Preparation
 
-Preheat oven to 350 degrees F.
+Preheat oven to 180 degrees C.
 
 Place bacon in a large, deep skillet. Cook over medium high heat until evenly brown. Drain, crumble and set aside.
 
