@@ -11,8 +11,8 @@
 - 1 leek, chopped
 - 1 clove garlic, minced
 - 2 green chile peppers, chopped
-- 1/2 pound skinless, boneless chicken breasts, cut into thin strips
-- 1/2 pound peeled and deveined prawns
+- 250g skinless, boneless chicken breasts, cut into thin strips
+-  peeled and deveined prawns
 - 1 teaspoon ground coriander
 - 1 teaspoon ground cumin
 - 3 tablespoons sweet soy sauce (Indonesian kecap manis)
